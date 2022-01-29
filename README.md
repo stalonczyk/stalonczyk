@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Maciej
+- 👀 I’m interested in coding, photography and board games
+- 🌱 I’m currently learning everything :D
+- 💞️ I’m looking to collaborate on some great open projects that can help humanity.
+- 📫 How to reach me by mail or linkedIn :)
